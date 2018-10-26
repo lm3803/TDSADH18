@@ -15,9 +15,9 @@ Here is an image of the ad:
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It is a type of food which is very rapidly absorbed into the circulation and requires preliminary digestion, but is easily oxidized in the tissues, thus affording a valuable source of energy. 
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*The greatest Physicians and Scientists the world over advocate the moderate use of beer.* 
-Prof. Chas. Fred'k Chandler, Chemistry Expert of Columbia University, on Octber 5th, 1914, said...
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"Beer is one of the few foods that is free from bacteria. BEER and BREAD are both made from. Bread contains water and is solid. Beer contains water and is liquid. Yeast makes both more palatable and digestable. And only when taken in large quantities is beer intoxicating. 
-Dr. Henry Davy, Pres. British Medical Society, London, Eng:...
+Prof. Chas. Fred'k Chandler, Chemistry Expert of Columbia University, on Octber 5th, 1914, said...<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"Beer is one of the few foods that is free from bacteria. BEER and BREAD are both made from. Bread contains water and is solid. Beer contains water and is liquid. Yeast makes both more palatable and digestable. And only when taken in large quantities is beer intoxicating. <br/>
+Dr. Henry Davy, Pres. British Medical Society, London, Eng:...<br/>
 &nbsp;&nbsp;&nbsp;"Beer, bread, and cheese for a meal is infinitely more scientific than the American meal of bread, tea, and jam."
 
 Prof. Aldolph Struempel, Vienna, Austria:...
