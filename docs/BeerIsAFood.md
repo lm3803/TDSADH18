@@ -7,7 +7,7 @@ Here is an image of the ad:
 **<center>BEER IS A FOOD</center>**
 
 
-**FOR the good of the public health, it is highly desirable that all predjudice against beer should be removed. This prejudice is held exclusively by people who do not drink beer -- *AND IT IS FOR THEM ESPECIALLY THAT THIS ADVERTISEMENT HAS BEEN PREPARED*.**
+**FOR the good of the public health, it is highly desirable that all predjudice against beer should be removed. This prejudice is held exclusively by people who do not drink beer — *AND IT IS FOR THEM ESPECIALLY THAT THIS ADVERTISEMENT HAS BEEN PREPARED*.**
 
 &nbsp;&nbsp;&nbsp;Beer is the mainstay of practical temperance and provides a mild and wholesome beverage.
 &nbsp;&nbsp;&nbsp;It contains an immense amount of nourishment in a delightfully refreshing form. 
@@ -26,7 +26,7 @@ Prof. Aldolph Struempel, Vienna, Austria:...
 <center>RUPPERT'S</center>
 
 <center>KNICKERBOCKER</center>
-<center>*The Beer That Satisfies* </center>
+*<center>The Beer That Satisfies* </center>*
 
 Is absolutely PURE because it is brewed under conditions which have reached the highest degree of perfection. The very best quality ingredients are used; the most sanitary conditions prevail in every department of the Brewery assuring a WHOLESOME and NUTRITIOUS beer of unsurpassed quality. Every bottle is absolutely pure when it leaves the Brewery and must be absolutely pure when it reaches you. 
 
@@ -35,5 +35,6 @@ Is absolutely PURE because it is brewed under conditions which have reached the 
 In Bottles and on Draught                   On Sale Everywhere
 Bottled at the Brewery Exclusively
 
-THE JACOB RUPPERT BREWERY 
-Third Avenue, 90th to 92nd Street, New York 
+<center>THE JACOB RUPPERT BREWERY </center>
+<center>Third Avenue, 90th to 92nd Street, New York</center>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Copyrighted —Jacob Ruppert— 1914
