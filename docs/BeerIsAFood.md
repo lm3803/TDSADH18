@@ -22,19 +22,15 @@ Dr. Henry Davy, Pres. British Medical Society, London, Eng:...
 
 Prof. Aldolph Struempel, Vienna, Austria:...
 &nbsp;&nbsp;&nbsp;"Because his brain was starving his body from ? I prescribed beer and bread for Mr. E. H. Harrbman, to give him added energy, build tissue and give more strength. "
-
 <center>RUPPERT'S</center>
-
 <center>KNICKERBOCKER</center>
-*<center>The Beer That Satisfies* </center>*
-
+*<center>The Beer That Satisfies </center>*
 Is absolutely PURE because it is brewed under conditions which have reached the highest degree of perfection. The very best quality ingredients are used; the most sanitary conditions prevail in every department of the Brewery assuring a WHOLESOME and NUTRITIOUS beer of unsurpassed quality. Every bottle is absolutely pure when it leaves the Brewery and must be absolutely pure when it reaches you. 
-
 <center>The public is cordially invited to call and inquest our Brewery and Bottling Department any day (Saturday and Sunday excepted) between the hours of 10 A.M. and 1 P.M.</center>
 
-In Bottles and on Draught                   On Sale Everywhere
+In Bottles and on Draught  On Sale Everywhere
 Bottled at the Brewery Exclusively
 
 <center>THE JACOB RUPPERT BREWERY </center>
 <center>Third Avenue, 90th to 92nd Street, New York</center>
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Copyrighted —Jacob Ruppert— 1914
+<center>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Copyrighted —Jacob Ruppert— 1914</center>
