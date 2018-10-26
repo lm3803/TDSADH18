@@ -27,8 +27,8 @@ Prof. Aldolph Struempel, Vienna, Austria:...<br/>
 Is absolutely PURE because it is brewed under conditions which have reached the highest degree of perfection. The very best quality ingredients are used; the most sanitary conditions prevail in every department of the Brewery assuring a WHOLESOME and NUTRITIOUS beer of unsurpassed quality. Every bottle is absolutely pure when it leaves the Brewery and must be absolutely pure when it reaches you. 
 <center>The public is cordially invited to call and inquest our Brewery and Bottling Department any day (Saturday and Sunday excepted) between the hours of 10 A.M. and 1 P.M.</center>
 
-In Bottles and on Draught  On Sale Everywhere
-Bottled at the Brewery Exclusively
+<center>In Bottles and on Draught  On Sale Everywhere<br/>
+Bottled at the Brewery Exclusively</center>
 
 **<center>THE JACOB RUPPERT BREWERY </center>**
 <center>Third Avenue, 90th to 92nd Street, New York</center>
