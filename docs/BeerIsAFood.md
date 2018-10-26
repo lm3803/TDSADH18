@@ -9,7 +9,7 @@ Here is an image of the ad:
 
 **FOR the good of the public health, it is highly desirable that all predjudice against beer should be removed. This prejudice is held exclusively by people who do not drink beer — *AND IT IS FOR THEM ESPECIALLY THAT THIS ADVERTISEMENT HAS BEEN PREPARED*.**
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Beer is the mainstay of practical temperance and provides a mild and wholesome beverage.<br/>
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Beer is the mainstay of practical temperance and provides a mild and wholesome beverage.<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It contains an immense amount of nourishment in a delightfully refreshing form. <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It is not only most palatable, but is a wonderful aid to digestion. <br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;It is a type of food which is very rapidly absorbed into the circulation and requires preliminary digestion, but is easily oxidized in the tissues, thus affording a valuable source of energy. 
