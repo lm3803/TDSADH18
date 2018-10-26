@@ -18,8 +18,8 @@ Here is an image of the ad:
 Prof. Chas. Fred'k Chandler, Chemistry Expert of Columbia University, on Octber 5th, 1914, said...<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"Beer is one of the few foods that is free from bacteria. BEER and BREAD are both made from. Bread contains water and is solid. Beer contains water and is liquid. Yeast makes both more palatable and digestable. And only when taken in large quantities is beer intoxicating. <br/>
 Dr. Henry Davy, Pres. British Medical Society, London, Eng:...<br/>
-&nbsp;&nbsp;&nbsp;"Beer, bread, and cheese for a meal is infinitely more scientific than the American meal of bread, tea, and jam."
-Prof. Aldolph Struempel, Vienna, Austria:...
+&nbsp;&nbsp;&nbsp;"Beer, bread, and cheese for a meal is infinitely more scientific than the American meal of bread, tea, and jam."<br/>
+Prof. Aldolph Struempel, Vienna, Austria:...<br/>
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;"Because his brain was starving his body from overactivity I prescribed beer and bread for Mr. E. H. Harrbman, to give him added energy, build tissue and give more strength. "
 **<center>RUPPERT'S</center>**
 **<center>KNICKERBOCKER</center>**
